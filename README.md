@@ -1,3 +1,3 @@
 <p align="center">
-🌱 追大军十里，終力竭
+  🌱 <strong>每逢衿，且喜且怯</strong>
 </p>
